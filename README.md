@@ -1,0 +1,1 @@
+# shikimori-bots-legal
